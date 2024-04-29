@@ -5,3 +5,5 @@ Hier ist Meike, ich arbeite mit Virag zusammen.
 Hallo Meike, ich freue mich, dass du hier bist. 
 
 Übrigens, der Sommer steht bald bevor.
+
+Super, ich kann den Sommer kaum abwarten.
